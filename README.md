@@ -1,2 +1,2 @@
-# ozguntuna.github.io
+# ozguntuna
 # page updating...
